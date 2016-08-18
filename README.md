@@ -1,0 +1,3 @@
+þetta er fyrirsögn
+==================
+ok
